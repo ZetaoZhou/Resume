@@ -1,2 +1,2 @@
 # Resume
-This is my latest resume.
+Please check my latest resume, thank you for your time.
